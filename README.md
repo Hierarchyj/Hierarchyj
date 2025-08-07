@@ -6,3 +6,8 @@ Cis Male    ///    aroace oriented    ///    queer platonic    .
 <div allign="center">
 
 https://ziggyvinnie.straw.page old straw that I don't wanna update unless I'm motivated to
+
+<div allign="center">
+
+<img width="1400" height="1400" alt="pixil-frame-0 (2)" src="https://github.com/user-attachments/assets/2047e99e-7498-4121-90c1-dbe6358122b7" />
+
