@@ -9,7 +9,8 @@ https://ziggyvinnie.straw.page old straw that I don't wanna update unless I'm mo
 
 <div allign="center">
 
-<img width="700" height="700" alt="pixil-frame-0 (3)" src="https://github.com/user-attachments/assets/190a3c32-ab02-465f-9bde-7a6e3a3d3847" />
+<img width="300" height="300" alt="pixil-frame-0 (4)" src="https://github.com/user-attachments/assets/8a74acba-2a9a-49ed-848f-8b5e97e5cf03" />
+
 
 <div allign="center">
 
