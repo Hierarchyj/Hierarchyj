@@ -4,9 +4,9 @@ hhiihello
 
 ---------------------------------------------------------------------------
 <div allign="center">
-shhh    icant do pixel art ok,..? digital art justisn't 4 me urghjJ!!
+shhh    icant do pixel art ok,..? Prolly the best I can do digital art justisn't 4 me urghjJ!!
 <div allign="center">
-<img width="700" height="700" alt="pixil-frame-0 (3)" src="https://github.com/user-attachments/assets/228a8812-3741-41b2-8923-217b3b6c825a" /> 
+<img width="700" height="700" alt="Adobe Express - file" src="https://github.com/user-attachments/assets/2c556206-8619-4f9c-ab39-816f4563e525" />
 
 Cis Male    ///    aroace oriented    ///    queer platonic    .
 
