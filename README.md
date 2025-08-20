@@ -12,7 +12,7 @@ Cis Male    ///    aroace oriented    ///    queer platonic    .
 
 <div allign="center">
 
-https://ziggyvinnie.straw.page old straw that I don't wanna update unless I'm motivated to
+ill update straw bcz it initially looked so ass
 
 
 
