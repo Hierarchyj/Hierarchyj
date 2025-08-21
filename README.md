@@ -4,9 +4,11 @@ hhiihello
 
 ---------------------------------------------------------------------------
 <div allign="center">
-shhh    icant do pixel art ok,..? Prolly the best I can do digital art justisn't 4 me urghjJ!!
+ok i thjink i get the concept of krita's components?? aww look a ditto
 <div allign="center">
-<img width="700" height="700" alt="Adobe Express - file" src="https://github.com/user-attachments/assets/2c556206-8619-4f9c-ab39-816f4563e525" />
+<img width="736" height="603" alt="image" src="https://github.com/user-attachments/assets/50e97a20-12e1-430e-9f16-5c082bdbf0ed" />
+
+
 
 Cis Male    ///    aroace oriented    ///    queer platonic    .
 
