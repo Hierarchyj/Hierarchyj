@@ -12,8 +12,7 @@
     
     
   <p align="center">Sociopathy & psychopathy inflicts a negative impact on how I interact with sensitive individuals. Be cognizant of my tendency to almost never be profound nor prudent. 
-  If  I  don't  take  accountability 
-  for  my  actions  please  hide  me  ok  
+  If I don't take accountability for my actions then suck it up you had it coming .
 
 
  <p align="center">ill update straw bcz it initially looked so ass(maybe)
