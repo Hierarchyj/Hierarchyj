@@ -18,6 +18,10 @@
 
  <p align="center">ill update straw bcz it initially looked so ass
 
+ <p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/827f2bc7-10ed-4737-a437-fc8d2fe9bff0" /> //
+ <p align="center">https://open.spotify.com/album/5tgnntLDXDjrQKDS4vBGjN
+
+
 
 
 
