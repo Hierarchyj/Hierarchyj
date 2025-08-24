@@ -1,8 +1,8 @@
 ## #FreeSchlep
 <div align="center">
-<img width="260" height="268" alt="image" src="https://github.com/user-attachments/assets/5b7c6d9f-3cd2-42b3-be5a-13e69a79fc14" /> 
-<img width="300" height="300" alt="Adobe Express - file (4)" src="https://github.com/user-attachments/assets/7552a371-dcb0-4d89-9d04-f06da15c4cc1" />
-<img width="300" height="300" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/ef5beffd-668c-4171-ac7c-2c8d0ce5cc39" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5b7c6d9f-3cd2-42b3-be5a-13e69a79fc14" /> 
+<img width="200" height="200" alt="Adobe Express - file (4)" src="https://github.com/user-attachments/assets/7552a371-dcb0-4d89-9d04-f06da15c4cc1" />
+<img width="200" height="200" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/ef5beffd-668c-4171-ac7c-2c8d0ce5cc39" />
 
 ---------------------------------------------------------------------------
 <div allign="center">
