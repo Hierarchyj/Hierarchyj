@@ -4,13 +4,12 @@
 
 ---------------------------------------------------------------------------
 <div allign="center">
-ok i thjink i get the concept of krita's components?? aww look a ditto
 <div allign="center">
-<img width="736" height="603" alt="image" src="https://github.com/user-attachments/assets/50e97a20-12e1-430e-9f16-5c082bdbf0ed" />
+                       <img width="536" height="491" alt="Adobe Express - file (3)" src="https://github.com/user-attachments/assets/d1e1da46-3ebc-49ce-a68e-7317f2bb49a1" />
+<div allign="center">
 
-
-
-Cis Male    ///    aroace oriented    ///    queer platonic    .
+ 
+Cis Male    ///    aroace oriented    ///    queer platonic    .  //                                                                                                                  Sociopathy   &   psychopathy   inflicts   a   negative   impact   on   how   I   interact   with sensitive   individuals. Be   cognizant   of   my   tendency   to   almost   never   be   profound   nor   prudent.  If  I  don't  take  accountability   for  my  actions  please  hide  me  ok  
 
 <div allign="center">
 
