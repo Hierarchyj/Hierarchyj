@@ -11,8 +11,9 @@
 
     
     
-  <p align="center">Sociopathy & psychopathy inflicts a negative impact on how I interact with sensitive individuals. Be cognizant of my tendency to almost never be profound nor prudent. 
-  If I don't take accountability for my actions then suck it up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to .
+  <p align="center">Psychopathy inflicts a negative impact with how I interact with individuals. Be cognizant of my tendency to almost never be profound nor prudent. 
+  If I don't take accountability for my actions then suck it up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(yes, I refer to my dear oomfs) .
+  iwc if you're expecting to be treated w/ care
 
 
  <p align="center">ill update straw bcz it initially looked so ass(maybe)
