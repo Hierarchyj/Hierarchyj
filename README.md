@@ -12,7 +12,7 @@
     
     
   <p align="center">Psychopathy inflicts a negative impact with how I interact with individuals. Be cognizant of my tendency to almost never be profound nor prudent. 
-  If I don't take accountability for my actions then suck it up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(yes, I'm a complete sweetheart to my oomfs) .
+  If I don't take accountability for my actions then suck it up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(yes, I'm a complete sweetheart to my oomfs<3) .
   iwc if you're expecting to be treated w/ care
 
 
