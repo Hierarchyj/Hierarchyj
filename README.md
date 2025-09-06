@@ -5,8 +5,9 @@
 <img width="200" height="200" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/ef5beffd-668c-4171-ac7c-2c8d0ce5cc39" />
 
 ---------------------------------------------------------------------------
-<div allign="center">
- <p align="center"><img width="400" height="400" alt="Adobe Express - file (3)" src="https://github.com/user-attachments/assets/d1e1da46-3ebc-49ce-a68e-7317f2bb49a1" />
+<div allign="center"><img width="400" height="670" alt="Adobe Express - file (12)" src="https://github.com/user-attachments/assets/63ec1493-66e1-4660-8c00-177c3103a6e2" />
+
+ <p align="center">
  <p align="center">Cis Male    ///    aroace oriented    ///    queer platonic    .  // 
 
     
@@ -18,7 +19,6 @@
  <p align="center">I REPEAT, I HAVE NO SENSE OF COMPUNCTION NOR QUALMS IN THE SENSE OF RUDIMENTARY MORAL EXCHANGES. THIS ALSO INCLUDES VENTING; I AM NOT THE TYPE OF GUY FOR THIS{(UCF)}//
 
 
- <p align="center">my straw still looks ass.
 
  <p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/827f2bc7-10ed-4737-a437-fc8d2fe9bff0" /> //
  <p align="center">https://open.spotify.com/album/5tgnntLDXDjrQKDS4vBGjN
