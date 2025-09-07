@@ -1,4 +1,4 @@
-## #FreeSchlep
+
 <div align="center">
 <img width="200" height="200" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/ef5beffd-668c-4171-ac7c-2c8d0ce5cc39" />
 <img width="210" height="210" alt="Adobe Express - file (7)" src="https://github.com/user-attachments/assets/5b6ceff5-7d25-44a9-9c39-6ba61fced783" />
