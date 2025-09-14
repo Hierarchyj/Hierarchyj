@@ -14,7 +14,7 @@
    <p align="center">Read before interacting
     
   <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be aggressive, dismissive or ignorant.
-  If I don't take accountability for my actions then suck it, up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(That is if I'm gesticulating/showing clinginess and remorse). I otherwise will abide by my word . Albeit I'll still try my best to be nicer .
+  If I don't take accountability for my actions then suck it, up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(That is if I'm gesticulating/showing clinginess, remorse and other afable gesture norms). I otherwise will abide by my word . Albeit I'll still try my best to be nicer .
   iwc if you're expecting to be treated w/ care
 
  <p align="center">I repeat, I have no sense of compunction nor qualms in the sense of rudimentary moral exchanges. This also includes venting; I am not the type of guy for this{(UCF)}{Aforementioned}//.
