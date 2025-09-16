@@ -14,7 +14,8 @@
  <p align="center">
  <p align="center">Cis Male    ///    aroace oriented    ///    queer platonic    .  // 
 
-   <p align="center">Read before interacting
+   ${{\color{Red}\Large{\textsf{Read before interacting\ \}}}}\$
+</div>
     
   <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be aggressive, dismissive or ignorant.
   If I don't take accountability for my actions then suck it, up you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(That is if I'm gesticulating/showing clinginess, remorse and other afable gesture norms). I otherwise will abide by my word . Albeit I'll still try my best to be nicer .
