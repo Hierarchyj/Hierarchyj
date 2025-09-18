@@ -7,8 +7,7 @@
 <img width="482" height="518" alt="Hellbreaker sticker github repo" src="https://github.com/user-attachments/assets/29bb7399-2141-4f6f-bedb-738ae044f147" />
 
 
-<img width="1115" height="100" alt="Adobe Express - file (16)" src="https://github.com/user-attachments/assets/d91544a8-a42b-4aec-a4fe-1c2ec6f81d10" />
-<div align="center"><img width="70" height="110" alt="Adobe Express - file (17)" src="https://github.com/user-attachments/assets/6514bf69-a896-4e21-960b-c4a3073e00f8" />
+
 
 
  <p align="center">
