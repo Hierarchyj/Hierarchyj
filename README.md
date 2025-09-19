@@ -1,4 +1,19 @@
 [StrawWIP](https://recreationaldissection.straw.page)
+
+
+![blinkiesCafe-3v](https://github.com/user-attachments/assets/07cf40ed-82eb-47ed-8047-d790f9d35afe)![blinkiesCafe-Wj](https://github.com/user-attachments/assets/cc7d91bb-5866-485e-992e-79a6bf191f55)![blinkiesCafe-Pk](https://github.com/user-attachments/assets/85db897d-af55-4723-ba0c-6beb4ad9757c)![blinkiesCafe-Y6](https://github.com/user-attachments/assets/9538fce0-9f64-42f6-ae8f-d8ed38adc0c2)![blinkiesCafe-xs](https://github.com/user-attachments/assets/19d20119-2c63-4f46-9d1d-1eabfd0b3579)![blinkiesCafe-qI](https://github.com/user-attachments/assets/228c6b76-466a-4d3e-b2ef-813aaeffe013)
+
+
+
+
+
+
+
+
+
+
+
+
 <div align="center"><img width="70" height="110" alt="Adobe Express - file (17)" src="https://github.com/user-attachments/assets/6514bf69-a896-4e21-960b-c4a3073e00f8" />
 
 <div align="center">
