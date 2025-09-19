@@ -1,4 +1,4 @@
-[StrawWIP](https://recreationaldissection.straw.page)
+
 
 
 ![blinkiesCafe-3v](https://github.com/user-attachments/assets/07cf40ed-82eb-47ed-8047-d790f9d35afe)![blinkiesCafe-Wj](https://github.com/user-attachments/assets/cc7d91bb-5866-485e-992e-79a6bf191f55)![blinkiesCafe-Pk](https://github.com/user-attachments/assets/85db897d-af55-4723-ba0c-6beb4ad9757c)![blinkiesCafe-Y6](https://github.com/user-attachments/assets/9538fce0-9f64-42f6-ae8f-d8ed38adc0c2)![blinkiesCafe-xs](https://github.com/user-attachments/assets/19d20119-2c63-4f46-9d1d-1eabfd0b3579)![blinkiesCafe-qI](https://github.com/user-attachments/assets/228c6b76-466a-4d3e-b2ef-813aaeffe013)![blinkiesCafe-27](https://github.com/user-attachments/assets/dfa937e4-0ac9-4f6d-8186-bce13bf4d95b)<img width="280" height="40" alt="Screenshot 2025-09-19 224550" src="https://github.com/user-attachments/assets/dd59d5b4-e5bb-4ecf-b589-af2c51b62cd4" />
@@ -44,7 +44,7 @@
 ${{\color{Red}\Large{\textsf{Basic DNI criteria\ \}}}}\$
 </div>
 
-${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and not my strawpage.\ \}}}}\$
+${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and not on my strawpage.\ \}}}}\$
 </div>
 
 
