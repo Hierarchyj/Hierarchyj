@@ -49,7 +49,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 
 
 1. Blasphemers. 
-2. Weird people with a nauseating diagnosis or fetish(I strongly refer to Pedophilia and other highly sexual and suggestive associates).
+2. Weird people with a nauseating diagnosis or fetish(I strongly refer to pedophilia, zoophilia and other highly sexual and suggestive associates).
 3. Adults(unless I personally know you myself or unless I take the initiative to interact with you myself.)
 4. Minors under the age of 13
 5. People who obsess over ships from any fandoms in particular.
