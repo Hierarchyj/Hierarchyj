@@ -16,7 +16,7 @@
    ${{\color{Red}\Large{\textsf{Read before interacting\ \}}}}\$
 </div>
     
-  <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be aggressive, dismissive or ignorant.
+  <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be dismissive or ignorant; this is an unequivocal occurence especially when it comes to serious topics. I'll do what is right and seemingly care.
   If I don't take accountability for my actions then suck it up, you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(That is if I'm gesticulating/showing clinginess, remorse and other afable gesture norms). I otherwise will abide by my word . I'll still try my best to be nicer .
   iwc if you're expecting to be treated w/ care
 
