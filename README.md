@@ -60,10 +60,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 
 <p align="center">Others condone of how explicit I can be, and I disregard of that.
 
- <p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/827f2bc7-10ed-4737-a437-fc8d2fe9bff0" /> //
- <p align="center">https://open.spotify.com/album/5tgnntLDXDjrQKDS4vBGjN
-
-
+ <p align="center"><img width="296" height="152" alt="Screenshot 2025-09-19 225010" src="https://github.com/user-attachments/assets/9a61edf4-b970-4377-acda-7422b64318b4" />//
 
 
 
