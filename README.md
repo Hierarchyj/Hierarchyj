@@ -26,7 +26,9 @@
 ${{\color{Red}\Large{\textsf{Basic DNI criteria\ \}}}}\$
 </div>
 
-<p align="center">Yes, I'll be listing the conglomeration on my repository and not my strawpage.
+${{\color{White}{\textsf{Yes, I'll be listing the conglomeration on my repository and not my strawpage.\ \}}}}\$
+</div>
+
 
 1. Blasphemers. 
 2. Weird people with a nauseating diagnosis or fetish(I strongly refer to Pedophilia and other highly sexual and suggestive kinks).
