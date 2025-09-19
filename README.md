@@ -26,7 +26,7 @@
 ${{\color{Red}\Large{\textsf{Basic DNI criteria\ \}}}}\$
 </div>
 
-${{\color{White}{\textsf{Yes, I'll be listing the conglomeration on my repository and not my strawpage.\ \}}}}\$
+${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and not my strawpage.\ \}}}}\$
 </div>
 
 
