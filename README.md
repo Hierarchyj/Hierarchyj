@@ -22,6 +22,23 @@
 
  <p align="center">I repeat, I have no sense of compunction nor qualms in the sense of rudimentary moral exchanges. This also includes venting; I am not the type of guy for this{(UCF)}{Aforementioned}//.
 
+-------------
+${{\color{Red}\Large{\textsf{Basic DNI criteria\ \}}}}\$
+</div>
+
+<p align="center">Yes, I'll be listing the conglomeration on my repository and not my strawpage.
+
+1. Blasphemers. 
+2. Weird people with a nauseating diagnosis or fetish(I strongly refer to Pedophilia and other highly sexual and suggestive kinks).
+3. Adults(unless I personally know you myself)
+4. Minors under the age of 13
+5. People who obsess over ships from any fandoms in particular.
+6. Satanists.
+7. Cultists(Unless you don't project your beliefs.)
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+<p align="center">Others condone of how explicit I can be, and I disregard of that.
 
  <p align="center"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/827f2bc7-10ed-4737-a437-fc8d2fe9bff0" /> //
  <p align="center">https://open.spotify.com/album/5tgnntLDXDjrQKDS4vBGjN
