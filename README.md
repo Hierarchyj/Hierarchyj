@@ -54,7 +54,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 4. Minors under the age of 13
 5. People who obsess over ships from any fandoms in particular.
 6. Satanists.
-7. Cultists(This actually falls under an iwc list. Int if you're chill) 
+7. Cultists(This actually falls under an iwc list. Just don't project your beliefs) 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
