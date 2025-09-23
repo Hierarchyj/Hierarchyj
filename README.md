@@ -35,7 +35,7 @@
 </div>
     
   <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be dismissive or ignorant; this is an unequivocal occurence, especially when it comes to serious topics. I'll do what is right and seemingly care.
-  If I don't take accountability for my actions then suck it up, you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm unfathomably inclined to(That is if I'm gesticulating/showing clinginess, remorse and other afable gesture norms). I otherwise will abide by my word . I'll still try my best to be nicer .
+  If I don't take accountability for my actions then suck it up, you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm actually inclined to. I will possibly start showing signs clinginess, remorse and other afable gesture norms if so. I otherwise will abide by my word . I'll still try my best to be nicer .
   iwc if you're expecting to be treated w/ care
 
  <p align="center">I repeat, I have no sense of compunction nor qualms in the sense of rudimentary moral exchanges. This also includes venting; I am not the type of guy for this{(UCF)}{Aforementioned}//.
@@ -55,6 +55,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 5. People who obsess over ships from any fandoms in particular.
 6. Satanists.
 7. Cultists(This actually falls under an iwc list. Just don't project your beliefs) 
+<p align="center">exploiting my boundaries won't really do any damage. I just find these types of people insufferable and annoying and I'll probably just end up ignoring you.
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
