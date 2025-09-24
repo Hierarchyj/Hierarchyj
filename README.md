@@ -1,7 +1,18 @@
 [Pronouns](https://pronouns.cc/@ImpetuousEbullience)    
  [Kasper's straw](https://splitfantaonmywrist.straw.page/)
 
-![blinkiesCafe-3v](https://github.com/user-attachments/assets/07cf40ed-82eb-47ed-8047-d790f9d35afe)![blinkiesCafe-Wj](https://github.com/user-attachments/assets/cc7d91bb-5866-485e-992e-79a6bf191f55)![blinkiesCafe-Pk](https://github.com/user-attachments/assets/85db897d-af55-4723-ba0c-6beb4ad9757c)![blinkiesCafe-Y6](https://github.com/user-attachments/assets/9538fce0-9f64-42f6-ae8f-d8ed38adc0c2)![blinkiesCafe-xs](https://github.com/user-attachments/assets/19d20119-2c63-4f46-9d1d-1eabfd0b3579)![blinkiesCafe-qI](https://github.com/user-attachments/assets/228c6b76-466a-4d3e-b2ef-813aaeffe013)![blinkiesCafe-27](https://github.com/user-attachments/assets/dfa937e4-0ac9-4f6d-8186-bce13bf4d95b)<img width="280" height="40" alt="Screenshot 2025-09-19 224550" src="https://github.com/user-attachments/assets/dd59d5b4-e5bb-4ecf-b589-af2c51b62cd4" />
+![blinkiesCafe-IM](https://github.com/user-attachments/assets/c71fcda1-548a-4be6-8dee-d41f50563736)![blinkiesCafe-B6](https://github.com/user-attachments/assets/c7ffa566-d663-44d2-b69d-d5c332585ca6)![blinkiesCafe-3A](https://github.com/user-attachments/assets/6f750f70-8341-44eb-a5f4-8526e39af759)
+![blinkiesCafe-1t](https://github.com/user-attachments/assets/368b020e-85a9-4b8a-aeef-1cc19ad37e89)![blinkiesCafe-Os](https://github.com/user-attachments/assets/7d7b9538-3a91-4898-97a4-8a9d25420e1a)![blinkiesCafe-N2](https://github.com/user-attachments/assets/95501d20-6e32-446e-a6cb-752039a27808)
+![blinkiesCafe-vA](https://github.com/user-attachments/assets/0e765846-4f8c-4e70-a1a2-f13247af1076)![blinkiesCafe-QY](https://github.com/user-attachments/assets/a30ecaf9-39ab-4741-864c-514715044ca8)![blinkiesCafe-xU](https://github.com/user-attachments/assets/9185880a-7ed8-40a5-985b-7f9cb0262672)![blinkiesCafe-qO](https://github.com/user-attachments/assets/21dda753-6f5c-4873-8ee7-9d5525185208)![blinkiesCafe-M8](https://github.com/user-attachments/assets/35480807-8de9-47c2-93eb-697c3bed42af)
+
+
+
+
+
+
+
+
+
 
 
 
