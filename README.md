@@ -66,7 +66,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 5. People who obsess over ships from any fandoms in particular.
 6. Satanists.
 7. Cultists(This actually falls under an iwc list. Just don't project your beliefs) 
-<p align="center">exploiting my boundaries won't really do any damage. I just find these types of people insufferable and annoying and I'll probably just end up ignoring you.
+<p align="center">exploiting my boundaries won't really do any damage. I just find these types of people insufferable and annoying at times. I'll probably just end up ignoring you.
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
