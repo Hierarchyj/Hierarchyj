@@ -1,5 +1,4 @@
 [Pronouns](https://pronouns.cc/@ImpetuousEbullience)    
- [Kasper's straw](https://splitfantaonmywrist.straw.page/)
 
 ![blinkiesCafe-IM](https://github.com/user-attachments/assets/c71fcda1-548a-4be6-8dee-d41f50563736)![blinkiesCafe-B6](https://github.com/user-attachments/assets/c7ffa566-d663-44d2-b69d-d5c332585ca6)![blinkiesCafe-3A](https://github.com/user-attachments/assets/6f750f70-8341-44eb-a5f4-8526e39af759)
 ![blinkiesCafe-1t](https://github.com/user-attachments/assets/368b020e-85a9-4b8a-aeef-1cc19ad37e89)![blinkiesCafe-Os](https://github.com/user-attachments/assets/7d7b9538-3a91-4898-97a4-8a9d25420e1a)![blinkiesCafe-N2](https://github.com/user-attachments/assets/95501d20-6e32-446e-a6cb-752039a27808)
