@@ -39,7 +39,7 @@
 
 
  <p align="center">
- <p align="center">Cis Male    ///    aroace oriented    ///    queer platonic    .  // 
+ <p align="center">Cisgnder   ///    aroace oriented    ///    queer platonic    .  // 
 
    ${{\color{Red}\Large{\textsf{Read before interacting\ \}}}}\$
 </div>
@@ -59,7 +59,7 @@ ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and 
 
 
 1. Blasphemers. 
-2. Weird people with a nauseating diagnosis or fetish(I strongly refer to pedophilia, zoophilia and other highly sexual and suggestive associates. If friended beforehand, then it's ok. I understand.).
+2. Weird people with a nauseating diagnosis or fetish(I strongly refer to pedophilia, zoophilia and other highly sexual and suggestive associates. If friended beforehand without falling under what is mentioned, then it's ok. I understand.).
 3. Adults(unless I personally know you myself or unless I take the initiative to interact with you myself.)
 4. Minors under the age of 13
 5. People who obsess over ships from any fandoms in particular.
