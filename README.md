@@ -31,14 +31,14 @@
 <div align="center">
 
 
-![DaveAndBambiDnbGIF](https://github.com/user-attachments/assets/635df7e6-1fc6-4682-8410-a3b06590bf85)
+<img width="329" height="310" alt="Screenshot_2025-10-01_201154-removebg-preview" src="https://github.com/user-attachments/assets/f3b18fb2-620f-49cf-a725-859200ed4acd" />
+<img width="263" height="305" alt="Adobe Express - file (19)" src="https://github.com/user-attachments/assets/a3ab5d59-f84d-48f5-9cc4-1edbc7861fa1" />
 
 
 
 
 
- <p align="center">
- <p align="center">𝖢𝗂𝗌𝗀𝗇𝖽𝖾𝗋   ///    𝖺𝗋𝗈𝖺𝖼𝖾 𝗈𝗋𝗂𝖾𝗇𝗍𝖾𝖽    ///    𝗊𝗎𝖾𝖾𝗋 𝗉𝗅𝖺𝗍𝗈𝗇𝗂𝖼    .  // 
+
 
    ${{\color{Red}\Large{\textsf{ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ.\ \}}}}\$
 </div>
