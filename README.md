@@ -31,46 +31,44 @@
 <div align="center">
 
 
-<img width="482" height="518" alt="Hellbreaker sticker github repo" src="https://github.com/user-attachments/assets/29bb7399-2141-4f6f-bedb-738ae044f147" />
+![DaveAndBambiDnbGIF](https://github.com/user-attachments/assets/635df7e6-1fc6-4682-8410-a3b06590bf85)
 
 
 
 
 
  <p align="center">
- <p align="center">Cisgnder   ///    aroace oriented    ///    queer platonic    .  // 
+ <p align="center">𝖢𝗂𝗌𝗀𝗇𝖽𝖾𝗋   ///    𝖺𝗋𝗈𝖺𝖼𝖾 𝗈𝗋𝗂𝖾𝗇𝗍𝖾𝖽    ///    𝗊𝗎𝖾𝖾𝗋 𝗉𝗅𝖺𝗍𝗈𝗇𝗂𝖼    .  // 
 
-   ${{\color{Red}\Large{\textsf{Read before interacting\ \}}}}\$
+   ${{\color{Red}\Large{\textsf{ʀᴇᴀᴅ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ.\ \}}}}\$
 </div>
     
-  <p align="center">Psychopathy inflicts a negative impact with how I interact with the people around me. Be cognizant of my tendency to almost never be profound nor prudent. I tend to either be dismissive or ignorant; this is an unequivocal occurrence, especially when it comes to serious topics. I'll do what is right and seemingly care.
-  If I don't take accountability for my actions then suck it up, you had it coming . Unless I'm feeling nice or you're a cool friend/mutual that I'm actually inclined to. I will possibly start showing signs clinginess, remorse and other afable gesture norms if so. I otherwise will abide by my word . I'll still try my best to be nicer .
-  iwc if you're expecting to be treated w/ care
+  <p align="center">ᴘꜱʏᴄʜᴏᴘᴀᴛʜʏ ɪɴꜰʟɪᴄᴛꜱ ᴀ ɴᴇɢᴀᴛɪᴠᴇ ɪᴍᴘᴀᴄᴛ ᴡɪᴛʜ ʜᴏᴡ ɪ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ᴀʀᴏᴜɴᴅ ᴍᴇ. ʙᴇ ᴄᴏɢɴɪᴢᴀɴᴛ ᴏꜰ ᴍʏ ᴛᴇɴᴅᴇɴᴄʏ ᴛᴏ ᴀʟᴍᴏꜱᴛ ɴᴇᴠᴇʀ ʙᴇ ᴘʀᴏꜰᴏᴜɴᴅ ɴᴏʀ ᴘʀᴜᴅᴇɴᴛ. ɪ ᴛᴇɴᴅ ᴛᴏ ᴇɪᴛʜᴇʀ ʙᴇ ᴅɪꜱᴍɪꜱꜱɪᴠᴇ ᴏʀ ɪɢɴᴏʀᴀɴᴛ; ᴛʜɪꜱ ɪꜱ ᴀɴ ᴜɴᴇQᴜɪᴠᴏᴄᴀʟ ᴏᴄᴄᴜʀʀᴇɴᴄᴇ, ᴇꜱᴘᴇᴄɪᴀʟʟʏ ᴡʜᴇɴ ɪᴛ ᴄᴏᴍᴇꜱ ᴛᴏ ꜱᴇʀɪᴏᴜꜱ ᴛᴏᴘɪᴄꜱ. ɪ'ʟʟ ᴅᴏ ᴡʜᴀᴛ ɪꜱ ʀɪɢʜᴛ ᴀɴᴅ ꜱᴇᴇᴍɪɴɢʟʏ ᴄᴀʀᴇ.   ɪꜰ ɪ ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ᴀᴄᴄᴏᴜɴᴛᴀʙɪʟɪᴛʏ ꜰᴏʀ ᴍʏ ᴀᴄᴛɪᴏɴꜱ ᴛʜᴇɴ ꜱᴜᴄᴋ ɪᴛ ᴜᴘ, ʏᴏᴜ ʜᴀᴅ ɪᴛ ᴄᴏᴍɪɴɢ . ᴜɴʟᴇꜱꜱ ɪ'ᴍ ꜰᴇᴇʟɪɴɢ ɴɪᴄᴇ ᴏʀ ʏᴏᴜ'ʀᴇ ᴀ ᴄᴏᴏʟ ꜰʀɪᴇɴᴅ/ᴍᴜᴛᴜᴀʟ ᴛʜᴀᴛ ɪ'ᴍ ᴀᴄᴛᴜᴀʟʟʏ ɪɴᴄʟɪɴᴇᴅ ᴛᴏ. ɪ ᴡɪʟʟ ᴘᴏꜱꜱɪʙʟʏ ꜱᴛᴀʀᴛ ꜱʜᴏᴡɪɴɢ ꜱɪɢɴꜱ ᴄʟɪɴɢɪɴᴇꜱꜱ, ʀᴇᴍᴏʀꜱᴇ ᴀɴᴅ ᴏᴛʜᴇʀ ᴀꜰᴀʙʟᴇ ɢᴇꜱᴛᴜʀᴇ ɴᴏʀᴍꜱ ɪꜰ ꜱᴏ. ɪ ᴏᴛʜᴇʀᴡɪꜱᴇ ᴡɪʟʟ ᴀʙɪᴅᴇ ʙʏ ᴍʏ ᴡᴏʀᴅ . ɪ'ʟʟ ꜱᴛɪʟʟ ᴛʀʏ ᴍʏ ʙᴇꜱᴛ ᴛᴏ ʙᴇ ɴɪᴄᴇʀ .   ɪᴡᴄ ɪꜰ ʏᴏᴜ'ʀᴇ ᴇxᴘᴇᴄᴛɪɴɢ ᴛᴏ ʙᴇ ᴛʀᴇᴀᴛᴇᴅ ᴡ/ ᴄᴀʀᴇ
 
- <p align="center">I repeat, I have no sense of compunction nor qualms in the sense of rudimentary moral exchanges. This also includes venting; I am not the type of guy for this{(UCF)}{Aforementioned}//.
+ <p align="center">ɪ ʀᴇᴘᴇᴀᴛ, ɪ ʜᴀᴠᴇ ɴᴏ ꜱᴇɴꜱᴇ ᴏꜰ ᴄᴏᴍᴘᴜɴᴄᴛɪᴏɴ ɴᴏʀ Qᴜᴀʟᴍꜱ ɪɴ ᴛʜᴇ ꜱᴇɴꜱᴇ ᴏꜰ ʀᴜᴅɪᴍᴇɴᴛᴀʀʏ ᴍᴏʀᴀʟ ᴇxᴄʜᴀɴɢᴇꜱ. ᴛʜɪꜱ ᴀʟꜱᴏ ɪɴᴄʟᴜᴅᴇꜱ ᴠᴇɴᴛɪɴɢ; ɪ ᴀᴍ ɴᴏᴛ ᴛʜᴇ ᴛʏᴘᴇ ᴏꜰ ɢᴜʏ ꜰᴏʀ ᴛʜɪꜱ{(ᴜᴄꜰ)}{ᴀꜰᴏʀᴇᴍᴇɴᴛɪᴏɴᴇᴅ}//.
 
 -------------
-${{\color{Red}\Large{\textsf{Basic DNI criteria\ \}}}}\$
+${{\color{Red}\Large{\textsf{ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ\ \}}}}\$
 </div>
 
 ${{\color{White}{\textsf{Yes, I'll be listing the conglomeration right here and not on my strawpage that doesn't even exist.\ \}}}}\$
 </div>
 
 
-1. Blasphemers. 
-2. Weird people with a nauseating diagnosis or fetish(I strongly refer to pedophilia, zoophilia and other highly sexual and suggestive associates. If friended beforehand without falling under what is mentioned(strictly referring to pdophlia&zoophlia), then it's ok. I understand.).
-3. Adults(unless I personally know you myself or unless I take the initiative to interact with you myself.)
-4. Minors under the age of 13
-5. People who obsess over ships from any fandoms in particular.
-6. Satanists.
-7. Cultists(This actually falls under an iwc list. Just don't project your beliefs) 
-<p align="center">Going over my boundaries won't really do any damage. I just find these types of people insufferable and annoying at times. I'll probably just end up ignoring you.
+1. ʙʟᴀꜱᴘʜᴇᴍᴇʀꜱ. 
+2. ᴡᴇɪʀᴅ ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴀ ɴᴀᴜꜱᴇᴀᴛɪɴɢ ᴅɪᴀɢɴᴏꜱɪꜱ ᴏʀ ꜰᴇᴛɪꜱʜ(ɪ ꜱᴛʀᴏɴɢʟʏ ʀᴇꜰᴇʀ ᴛᴏ ᴘᴇᴅᴏᴘʜɪʟɪᴀ, ᴢᴏᴏᴘʜɪʟɪᴀ ᴀɴᴅ ᴏᴛʜᴇʀ ʜɪɢʜʟʏ ꜱᴇxᴜᴀʟ ᴀɴᴅ ꜱᴜɢɢᴇꜱᴛɪᴠᴇ ᴀꜱꜱᴏᴄɪᴀᴛᴇꜱ. ɪꜰ ꜰʀɪᴇɴᴅᴇᴅ ʙᴇꜰᴏʀᴇʜᴀɴᴅ ᴡɪᴛʜᴏᴜᴛ ꜰᴀʟʟɪɴɢ ᴜɴᴅᴇʀ ᴡʜᴀᴛ ɪꜱ ᴍᴇɴᴛɪᴏɴᴇᴅ(ꜱᴛʀɪᴄᴛʟʏ ʀᴇꜰᴇʀʀɪɴɢ ᴛᴏ ᴘᴅᴏᴘʜʟɪᴀ&ᴢᴏᴏᴘʜʟɪᴀ), ᴛʜᴇɴ ɪᴛ'ꜱ ᴏᴋ. ɪ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ.).
+3. ᴀᴅᴜʟᴛꜱ(ᴜɴʟᴇꜱꜱ ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ᴋɴᴏᴡ ʏᴏᴜ ᴍʏꜱᴇʟꜰ ᴏʀ ᴜɴʟᴇꜱꜱ ɪ ᴛᴀᴋᴇ ᴛʜᴇ ɪɴɪᴛɪᴀᴛɪᴠᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ʏᴏᴜ ᴍʏꜱᴇʟꜰ.)
+4. ᴍɪɴᴏʀꜱ ᴜɴᴅᴇʀ ᴛʜᴇ ᴀɢᴇ ᴏꜰ 13
+5. ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ɢᴏ ᴏᴠᴇʀʙᴏᴀʀᴅ ᴡɪᴛʜ ᴏʙꜱᴇꜱꜱɪɴɢ ᴏᴠᴇʀ ꜱʜɪᴘꜱ ꜰʀᴏᴍ ᴀɴʏ ꜰᴀɴᴅᴏᴍꜱ ɪɴ ᴘᴀʀᴛɪᴄᴜʟᴀʀ.
+6. ꜱᴀᴛᴀɴɪꜱᴛꜱ.
+7. ᴄᴜʟᴛɪꜱᴛꜱ(ᴛʜɪꜱ ᴀᴄᴛᴜᴀʟʟʏ ꜰᴀʟʟꜱ ᴜɴᴅᴇʀ ᴀɴ ɪᴡᴄ ʟɪꜱᴛ. ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ᴘʀᴏᴊᴇᴄᴛ ʏᴏᴜʀ ʙᴇʟɪᴇꜰꜱ) 
+<p align="center">𝖦𝗈𝗂𝗇𝗀 𝗈𝗏𝖾𝗋 𝗆𝗒 𝖻𝗈𝗎𝗇𝖽𝖺𝗋𝗂𝖾𝗌 𝗐𝗈𝗇'𝗍 𝗋𝖾𝖺𝗅𝗅𝗒 𝖽𝗈 𝖺𝗇𝗒 𝖽𝖺𝗆𝖺𝗀𝖾. 𝖨 𝗃𝗎𝗌𝗍 𝖿𝗂𝗇𝖽 𝗍𝗁𝖾𝗌𝖾 𝗍𝗒𝗉𝖾𝗌 𝗈𝖿 𝗉𝖾𝗈𝗉𝗅𝖾 𝗂𝗇𝗌𝗎𝖿𝖿𝖾𝗋𝖺𝖻𝗅𝖾 𝖺𝗇𝖽 𝖺𝗇𝗇𝗈𝗒𝗂𝗇𝗀 𝖺𝗍 𝗍𝗂𝗆𝖾𝗌. 𝖨'𝗅𝗅 𝗉𝗋𝗈𝖻𝖺𝖻𝗅𝗒 𝗃𝗎𝗌𝗍 𝖾𝗇𝖽 𝗎𝗉 𝗂𝗀𝗇𝗈𝗋𝗂𝗇𝗀 𝗒𝗈𝗎.
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-<p align="center">Others don't condone of how explicit I can be, and I disregard of that.
+<p align="center">ᴼᵗʰᵉʳˢ ᵈᵒⁿ'ᵗ ᶜᵒⁿᵈᵒⁿᵉ ᵒᶠ ʰᵒʷ ᵉˣᵖˡⁱᶜⁱᵗ ᴵ ᶜᵃⁿ ᵇᵉ, ᵃⁿᵈ ᴵ ᵈⁱˢʳᵉᵍᵃʳᵈ ᵒᶠ ᵗʰᵃᵗ.
 
- <p align="center"><img width="296" height="152" alt="Screenshot 2025-09-19 225010" src="https://github.com/user-attachments/assets/9a61edf4-b970-4377-acda-7422b64318b4" />//
+ <p align="center"><img width="120" height="52" alt="Screenshot 2025-09-19 225010" src="https://github.com/user-attachments/assets/9a61edf4-b970-4377-acda-7422b64318b4" />//
 
 
 
