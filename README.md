@@ -1,4 +1,4 @@
-hi ㅤㅤuhㅤㅤ, ㅤㅤi ㅤㅤgot ㅤㅤreally ㅤㅤlazy ㅤㅤwith ㅤㅤthis.
+hi uh, i got really lazy with this
 ---------
 <div align="center">
 
