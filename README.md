@@ -10,6 +10,5 @@ I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ
  <img width="120" height="52" alt="image" src="https://github.com/user-attachments/assets/b3912cb7-79ee-4dab-a938-52e6b1936051" />
 //
 
- ㅤ ㅤ ㅤWhy ㅤwould ㅤ I ㅤ rephrase ㅤ my ㅤ byi ㅤ when ㅤ the ㅤ preponderant ㅤ point ㅤ is ㅤ to ㅤ get ㅤ sensitive ㅤ individuals ㅤ to ㅤ take ㅤtheㅤ precaution ㅤ when ㅤ it ㅤ comes ㅤ to ㅤ interacting?
-
+ ㅤ ㅤ ㅤ
 
