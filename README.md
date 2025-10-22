@@ -10,6 +10,6 @@ I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ
  <img width="120" height="52" alt="image" src="https://github.com/user-attachments/assets/b3912cb7-79ee-4dab-a938-52e6b1936051" />
 //
 
-I'm underaged. Iwec if you're over the age of 15.
+I'm underaged. Iwecuf if you're over the age of 15.
  ㅤ ㅤ ㅤ
 
