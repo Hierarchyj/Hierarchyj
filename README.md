@@ -5,7 +5,7 @@ I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ
        <td>
          <br>
          ${\textsf{\color{#9d0000}desc}}$ 
-<p align="center"> <kbd>$\color{#9d0000}{\textsf{Hello, I'm mainly referred to as Vincent. Take the precaution of interacting with me since I'm not the best at consoling others. I'm really not the most solicitous person}}$<br> <br>$\color{#9d0000}{\textsf{, and I tend to be quite remiss when it comes to you or other's feelings. How you feel does not concern me.}}$<br><img width="200" height="170" alt="Screenshot_2025-11-05_195101-removebg-preview" src="https://github.com/user-attachments/assets/8044fe4d-44ed-45d0-b25c-1c9806c6b89f" />
+<p align="center"> <kbd>$\color{#9d0000}{\textsf{Hello, I'm mainly referred to as Vincent. Take the precaution of interacting with me since I'm not the best at consoling others. I'm really not the most solicitous person}}$<br> <br>$\color{#9d0000}{\textsf{, and I tend to be quite remiss when it comes to you or other's feelings. How you feel does not concern me.}}$<br><img width="200" height="185" alt="Screenshot_2025-11-05_195101-removebg-preview" src="https://github.com/user-attachments/assets/8044fe4d-44ed-45d0-b25c-1c9806c6b89f" />
 
    </div>
 
