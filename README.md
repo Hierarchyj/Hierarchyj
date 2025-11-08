@@ -9,9 +9,7 @@ I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ
 
    </div>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?&color=bd0000&center=true&vCenter=true&lines=You'll+find+the+detestable+facets;+of+my+personality+as+we+interact.)](https://git.io/typing-svg)
-
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
-I'm underaged. Iwecuf if you're over the age of 15. Feel free to un-add me if I don't fall under your preferred age range.
+I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. 
  ㅤ ㅤ ㅤ
