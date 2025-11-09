@@ -1,4 +1,4 @@
-I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ ㅤ ㅤno ㅤ ㅤmatter ㅤ ㅤhow ㅤ ㅤformidable ㅤ ㅤone ㅤ ㅤcan ㅤ ㅤbe
+
 <div align="center">
 <table border="2">
      <tr>
@@ -11,5 +11,7 @@ I'm ㅤ ㅤshrewd ㅤ ㅤand ㅤ ㅤwill ㅤ ㅤalways ㅤ ㅤbe ㅤ ㅤ ㅤ ㅤ
 
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
-I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. 
+${{\color{Red}{\textsf{I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. \ \}}}}\$
+</div>
+
  ㅤ ㅤ ㅤ
