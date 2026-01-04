@@ -15,7 +15,7 @@
 
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
-${{\color{Orange}{\textsf{I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. \ \}}}}\$
+${{\color{Orange}{\textsf{I'm underaged(13). Feel free to un-add me or disregard of me if I don't fall under your preferred age range. \ \}}}}\$
 </div>                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  <p align="center"><img width="250" height="250" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/579e4a91-bd4b-4ff8-9bac-5ac38c955e43" />
 
 
