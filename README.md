@@ -15,7 +15,7 @@
 
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
-${{\color{Red}{\textsf{I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. \ \}}}}\$
+${{\color{Orange}{\textsf{I'm underaged(13). Feel free to un-add me if I don't fall under your preferred age range. \ \}}}}\$
 </div>
 
  ㅤ ㅤ ㅤ
