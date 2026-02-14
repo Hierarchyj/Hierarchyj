@@ -1,5 +1,5 @@
 [strwpge](https://recreationaldissection.straw.page)
-<div align="center">
+<div align="center">this sticker looks so unostentatious I promise that I can do better at rendering
 
   
   <div align="center">
