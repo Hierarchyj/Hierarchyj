@@ -1,5 +1,5 @@
 [strwpge](https://recreationaldissection.straw.page)
-<div align="center">wip ok 
+<div align="center">wip 
 
   
   <div align="center">
